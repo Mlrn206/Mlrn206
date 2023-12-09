@@ -14,8 +14,20 @@ I'm totally a newbie at coding. Can someone guide me?
 
 
 
-Education:
+EDUCATION:
 I studied my primary school at SJKC THUNG HON CHENDRONG and followed by SMK ST. BERNAEDETTES’ CONVENT BATU GAJAH for my secondary school. Then , UTM is the place where my foundation and degree life start since 2022.
+
+POSITION:
+Becoming class representee since year 1 until year 6.
+President of Renjer Puteri
+Vice President of Ping Pong and Choir
+President of department of corporation (F5)
+
+ADDITIONAL:
+Becoming a good role model in year 6.
+ Awarded as a good student in year 1.
+
+
 
 
 
