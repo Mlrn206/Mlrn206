@@ -12,6 +12,13 @@ I'm totally a newbie at coding. Can someone guide me?
 * 🤝  I'm open to collaborating on Projects
 * ⚡  I am a PowerGirl but dont tell anyone.
 
+
+
+Education:
+I studied my primary school at SJKC THUNG HON CHENDRONG and followed by SMK ST. BERNAEDETTES’ CONVENT BATU GAJAH for my secondary school. Then , UTM is the place where my foundation and degree life start since 2022.
+
+
+
 ### Skills
 
 
