@@ -15,31 +15,44 @@ I'm totally a newbie at coding. Can someone guide me?
 
 
 
-EDUCATION:
+## EDUCATION🙉 :
 
-I studied my primary school at SJKC THUNG HON CHENDRONG and followed by SMK ST. BERNAEDETTES’ CONVENT BATU GAJAH for my secondary school. Then , UTM is the place where my foundation and degree life start since 2022.
+ SJKC THUNG HON CHENDRONG(2011-2016)
+ 
+ SMK ST. BERNAEDETTES’ CONVENT BATU GAJAH (2017-2021)
+ 
+ Foundation in Lifescience -UTM JB (2022-2023)
+ 
+ UTM (2023-)
 
-POSITION:
+## POSITION💃 :
 
 Primary school:)
 
 Becoming class representee since year 1 until year 6.
+
 Head of Prefect(2016)
+
 
 Secondary school:)
 
-President of Renjer Puteri
-Vice President of Ping Pong and Choir
+President of Renjer Puteri (F5)
+
+Vice President of Ping Pong and Choir (F4&F5)
+
 President of department of corporation (F5)
 
-ADDITIONAL:
+## ADDITIONAL😍 :
 Becoming a good role model in year 6.
- Awarded as a good student in year 1.
 
-Course:
+ Awarded as a good student in year 1.
+ 
+ Athletics representing from school(2015-2016)
+
+## Course💫 :
 I'm currently furthering my study at UTM,Skudai in Bachelor of Computing Science with Honours.( Cybersecurity )
 
-CERTIFICATE:
+## CERTIFICATE✌️:
 
 Good Student Award
 
