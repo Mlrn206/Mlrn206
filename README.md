@@ -13,7 +13,7 @@ I'm totally a newbie at coding. Can someone guide me?
 * ⚡  I am a PowerGirl but dont tell anyone.
 
 
-Core
+
 
 EDUCATION:
 
@@ -39,7 +39,12 @@ Becoming a good role model in year 6.
 Course:
 I'm currently furthering my study at UTM,Skudai in Bachelor of Computing Science with Honours.( Cybersecurity )
 
-Certificate:
+CERTIFICATE:
+Good Student Award
+Best Storyteller in Storytelling Competition
+Pass in Grade 2 & 6 in Piano
+Distinction in Grade 8 in Piano
+
 
 
 
