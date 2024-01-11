@@ -40,9 +40,13 @@ Course:
 I'm currently furthering my study at UTM,Skudai in Bachelor of Computing Science with Honours.( Cybersecurity )
 
 CERTIFICATE:
+
 Good Student Award
+
 Best Storyteller in Storytelling Competition
+
 Pass in Grade 2 & 6 in Piano
+
 Distinction in Grade 8 in Piano
 
 
