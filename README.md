@@ -3,6 +3,8 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 A year 1 student of cybersecurity
 ---------------------------------
+<img align="right" width="300px" src="https://github.com/CCY0810/CCY0810/assets/147255304/43291a3b-e8dc-43e4-bc93-b46940e71eeb" >
+<!-- ICEGIF,2024.Hello Gif.https://www.icegif.com/hello-10/. -->
 
 I'm totally a newbie at coding. Can someone guide me?
 
@@ -25,6 +27,13 @@ I'm totally a newbie at coding. Can someone guide me?
  
  UTM (2023-)
 
+
+
+ 
+
+
+ 
+
 ## POSITION💃 :
 
 Primary school:)
@@ -42,6 +51,9 @@ Vice President of Ping Pong and Choir (F4&F5)
 
 President of department of corporation (F5)
 
+
+
+
 ## ADDITIONAL😍 :
 Becoming a good role model in year 6.
 
@@ -49,8 +61,14 @@ Becoming a good role model in year 6.
  
  Athletics representing from school(2015-2016)
 
+ 
+ 
+
 ## Course💫 :
 I'm currently furthering my study at UTM,Skudai in Bachelor of Computing Science with Honours.( Cybersecurity )
+
+
+
 
 ## CERTIFICATE✌️:
 
